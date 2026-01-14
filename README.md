@@ -1,14 +1,8 @@
-# Placa colaborante en Perú: eficiencia estructural y ahorro en construcción
+# Placa colaborante en Perú: eficiencia estructural y construcción inteligente
 
-La **placa colaborante** se ha convertido en una alternativa clave para la construcción moderna en el Perú gracias a su **eficiencia estructural**, **rapidez de instalación** y **reducción significativa de costos** frente a los sistemas tradicionales.
+La **placa colaborante** es un sistema constructivo moderno que optimiza la ejecución de losas al trabajar de forma conjunta con el concreto, permitiendo **reducir tiempos de obra**, **disminuir costos** y mejorar el desempeño estructural frente a los métodos tradicionales.  
 
-Este sistema constructivo utiliza una lámina de acero galvanizado que trabaja de manera conjunta con el concreto, formando losas más resistentes y livianas, eliminando el uso del encofrado convencional. Como resultado, se optimizan los tiempos de obra, se reduce la mano de obra necesaria y se mejora la seguridad durante la ejecución.
+Este sistema es ampliamente utilizado en proyectos **residenciales, comerciales e industriales**, ya que facilita una instalación más rápida, reduce el uso de encofrados y mejora la seguridad y el orden en obra, convirtiéndose en una alternativa eficiente y rentable para la construcción moderna.
 
-La placa colaborante es ampliamente utilizada en **proyectos residenciales, comerciales e industriales**, ya que permite una construcción más ordenada, limpia y rentable, cumpliendo con los estándares técnicos exigidos en la ingeniería estructural moderna.
-
-## Más información
-
-Para conocer en detalle el funcionamiento, ventajas técnicas y aplicaciones prácticas de la placa colaborante, puedes revisar el siguiente recurso:
-
-🔗 https://placacolaborante.com/
-
+ **Presentación completa y visual sobre placa colaborante:**  
+https://www.canva.com/design/DAG-bbrl2os/-G_thzg7-4JqnKUahzykpw/view?utm_content=DAG-bbrl2os&utm_campaign=designshare&utm_medium=link2&utm_source=uniquelinks&utlId=h3f3d8dddfb
